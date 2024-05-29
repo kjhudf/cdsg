@@ -1,6 +1,6 @@
 # 我在野外截取一段视频
 
-<a href="https://8h9e.vip/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/kjhudf/xccd/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 我在野外截取一段视频
 人，谁没有青春过？
